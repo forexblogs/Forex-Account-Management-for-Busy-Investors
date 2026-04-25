@@ -54,7 +54,7 @@ Just remember to keep your guard up. Stick to regulated brokers, avoid anyone ma
 If you're curious to see how it works, why not browse a few regulated brokers today and peek at their top-performing managers? You don't have to deposit anything just to look around and get a feel for it!
 <h2>Related HashTags</h2>
 #ForexAccountManagement #Forex #Investing #WealthManagement #PassiveIncome #TradingStrategy #ManagedAccounts #FinanceExpert #ForexMarket #BusyInvestors #AssetManagement #FXTrading #InvestmentPortfolio #PAMM #FinancialFreedom
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
